@@ -145,3 +145,87 @@ It can be awefully hard to stay curious about another person's story when we hav
 #### To Move Forward, First Understand Where We Are
 
 Wherever we want to go, understanding - imagining ourself in the other person's story - has got to be our first step.  Before we can figure out how to move forward, we need to understand where we are.
+
+## Don't Assume They Meant It: Disentangle Intent from Impact
+
+**⭐️ Intentions strongly influence our judgements of others.**
+
+### Two Key Mistakes
+
+#### The First Mistake: Our Assumptions About Intentions Are Often Wrong
+
+Here's the problem: while we care deeply about other people's intentions toward us, we don't actually know what their intentions are.  We can't.  Other people's intentions exist only in their hearts and minds.  They are invisible to us.  However real and right our assumptions about other people's intentions may seem to us, they are often incomplete or just plain wrong.
+
+##### We Assume Intentions from the Impact on Us
+
+Our thinking is so automatic that we aren't even aware that our conclusion is only an assumption.  We are so taken in by our story about what they intended that we can't imagine how they could have intended anything else.  When we've been hurt by someone else's behavior, we assume the worst.
+
+We attribute intentions to others all the time.  We often have to read between the lines to figure out what people really mean.
+
+When we are acting, we know that much of the time we don't intend to annoy, offend, or upstage others.  We're wrapped up in our own worries, and are often unaware that we're having any negative impact on others.  When we're the ones acted upon, however, our story too easily slides into one about bad intentions and bad character.  Without hearing from the other person, we can't really know their intentions.
+
+##### We Assume Bad Intentions Mean Bad Character
+
+We easily jump from "They had bad intentions" to "they are a bad person."  We settle into judgements about their character that color our view of them and, indeed, affect not only any conversation we might have, but the entire relationship.  The worse our view of the other person's character, the easier it is to justify avoiding them or saying nasty things behind their back.
+
+Our conclusions are often based solely on the impact of other's behavior on us, which is not a sufficient basis to be sure of someone else's intentions or character.
+
+##### Accusing Them of Bad Intentions Creates Defensiveness
+
+Given how frequently our assumptions are incomplete or wrong, the other person often feels not just accused, but falsely accused.  Few things are more aggravating.
+* We should not be surprised that they try to defend themselves, or attack back
+* The result is a mess.  No one learns anything, no one apologizes, nothing changes
+
+**Two classical characteristics of the cycle which get well-intentioned people in trouble:**
+1. Both parties think they are the victim
+2. Both parties think they are acting only to defend themselves
+
+##### Attributions Can Become Self-Fulfilling
+
+When we think others have bad intentions toward us, if affects our behavior.  And, in turn, how we behave affects how they treat us.  Before we know it, our assumption that they have bad intentions towards us has come true.
+
+#### The Second Mistake: Good Intentions Don't Sanitize Bad Impact
+
+A literal focus on intentions ends up clouding the conversation.  Often we say "You intended to hurt me" when what we really mean is "You don't care enough about me."  Thi is an important distinction.
+* Most of us on the receiving end make little distinction between "He wanted to hurt me" and "He didn't want to hurt me, but he didn't make me a priority.  Either way, it hurts.
+* It is useful to attempt to clarify our intentions.  The question is when.  If we do it at the beginning of the conversation, we are likely doing it without fully understanding what the other person really means to express.
+
+##### We Aggravate Hostility - Especially Between Groups
+
+The desire to sanitize impact is especially commmon in situations involving issues of "difference," like race, gender, or sexual orientation.
+* What's important is that whether or not the intention was to exclude, people *felt* excluded.  And such feelings may take time and thought on everyone's part to work through.
+
+### Avoiding the Two Mistakes
+
+Separating impact from intentions requires us to be aware of the automatic leap from "I was hurt" to "You intended to hurt me."  We can make this distinction by asking ourselves 3 questions:
+
+1. **Actions:** "What did the other person actually say or do?"
+2. **Impact:** "What was the impact on me?"
+3. **Assumption:** "Based on this impact, what assumption am I making about what the other person intended?"
+
+#### Hold Our Views as Hypothesis
+
+Share the impact on us and inquire about their intentions
+* We can use our answers to the previous 3 questions to begin the difficult conversation itself
+  * Say what the other person did
+  * Tell them what its impact on us
+  * Explain our assumption about their intentions
+
+#### Don't Pretend We Don't Have a Hypothesis
+
+Recognize our assumptions for what they are: mere guesses subject to modification or disproof.
+* When we share our assumptions about their intentions, simply be clear that we are sharing assumptions (guesses) and that we are sharing them for the purpose of testing whether they make sense to the other person
+
+##### Some Defensiveness is Inevitable
+
+It is best to anticipate a certain amount of defensiveness, and to be prepared to clarify what we are trying to communicate and what we are not.
+* The more we can relive the other person of the need to defend themselves, the easier it becomes for them to take in what we are saying and to reflect on the complexity of their motivations.
+
+#### Avoiding the Second Mistake: Listen for Feelings and Reflect on Our Intentions
+
+We have a strong tendency to want to defend ourselves, however, starting there leads to trouble.
+* If we start by listening and acknowledging the feelings, and then return to the question of intentions, it will make our conversation significantly easier and more constructive.
+
+##### Be Open to Reflecting on the Complexity of Our Intentions
+
+Understanding how we distort other's intentions, making difficult converstations even more difficult, is crucial to untangling what happened to us.
