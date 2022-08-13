@@ -229,3 +229,112 @@ We have a strong tendency to want to defend ourselves, however, starting there l
 ##### Be Open to Reflecting on the Complexity of Our Intentions
 
 Understanding how we distort other's intentions, making difficult converstations even more difficult, is crucial to untangling what happened to us.
+
+## Abandon Blame: Map the Contribution System
+
+**🙁 <u>Blame</u> is about <i>judging</i>**
+**🙂 <u>Contribution</u> is about <i>understanding</i>**
+
+Focusing on blame is a bad idea because it inhibits our ability to learn what's really causing the problem and to do anything meaningful to correct it.  And because blame is often irrelevant and unfair.  The urge to blame is based, quite literally, on a misunderstanding of what has given rise to the issues between us and the other person, and on the fear of being blamed.  To often, blaming also serves as a bad proxy for talking directly about hurt feelings.
+
+### Distinguish Blame from Contribution
+
+The distinction between blame and contribution is not always easy to grasp, but it is essential to improving our ability to handle difficult conversations well.
+
+### Blame is About Judging and Looks Backwards
+
+WHen we ask the question "Who is to blame?" we are really asking three questions in one:
+
+1. Did this person cause the problem?
+2. How should this person's actions be judged against some standard of conduct?
+3. How should this person be punished?
+
+When we blame someone, we are offering them the role of "the accused," so they do what accused people do: they defend themselves any way they can.
+
+### Contribution is About Understanding and Looks Forward
+
+Contribution asks a related but different set of questions:
+
+1. How did we *each* contribute to bringing about the current situation?
+2. Having identified the contribution system, how can we change it?
+3. What can we do about it as we go forward?
+
+Contribution is useful when our goal is to understand what actually happened so that we can improve how we work together in the future.  Too often we deal in blame when our real goals are understanding and change.
+* As we get a handle on the interactive system the two of us have created, we can see what we each need to do to avoid or alter that system in the future.
+
+#### Contribution is Joint and Interactive
+
+Focusing on the contributions and seeking understanding rather than judgement is critical.  When things go wrong in human relationships, everyone has contributed in some important way.
+* This is not how we usually *experience* contribution
+* A common distortion is to see contribution as singular
+  * What has gone wrong is either entirely our fault or (more often) entirely theirs
+* Almost every situation is the result of a joint contribution system
+  * Focusing on only one or the other of the contributors obscures rather than illuminates that system
+
+### The Costs of the Blame Frame
+
+#### When Blame is the Goal, Understanding is the Casualty
+
+The cost of blame is that learning the truth about what happened becomes more difficult.
+  * Focusing on blame is a waste of time, it neither helps us understand the problem looking back, not helps us fix it going forward.
+
+##### Blame Can Leave a Bad System Undiscovered
+
+Removing one player in a system is sometimes warranted.  But the cost of doing so as a substitute for the hard work of examining the larger contribution system is often surprisingly high.
+
+### The Benefits of Understanding Contribution
+
+**⭐️ Contribution encourages learning and change**
+
+Fundamentally, using the blame frame makes conversations more difficult, while understanding the contribution system makes difficult conversations easier and more likely to be productive.
+
+#### 3 Misconceptions About Contributions
+
+1. I should only focus on my contribution
+  a) Finding our contribution doesn't in any way negate the other person's contribution.
+  b) It has taken us both to get into this mess, it will probably take us both to get out of it.
+2. Putting aside blame means putting aside my feelings
+  a) As we and the other person look at how we each have contributed to the problem, sharing our feelings is essential
+  b) the very impulse to blame is often stimulated by strong emotions which lie unexpressed
+  c) Instead of focusing on blame as a proxy for our feelings, we can speak more directly about our feelings and that reduces the impulse to blame, it frees us to talk more comfortably and productively in terms of contribution
+  d) we may find some relief by asking ourselves: "What feelings am I failing to express?" and "Has the other person acknowledged my feelings?"  As we explore this terrain, we may find oursleves naturally shifting from a blame frame to a contribution frame.
+3. Exploring contribution means "blaming the victim"
+  a) When someone blames the victim, they are suggesting that the victim "brought it on themselves," that they deserved or even wanted to be victimized.  This is often terribly unfair and painful for both the victim and others
+  b) looking for joint contribution is not about blame of any kind
+  c) we may not be able to change the other person's contributions, but we can often change our own
+  d) By identifying what we are doing to perpetuate a situation, we learn where we have leverage to affect the system.  Simply by changing our own behavior, we gain at least some influence over the problem.
+
+#### Finding Our Fair Share: 4 Hard-to-Spot Contributions
+
+1. Avoiding until now
+  a) One of the most common contributions to a problem, and one of the easiest to overlook, is the simple act of avoiding
+2. Being unapproachable
+  a) The flip side of not bringing something up is having an interpersonal style that keeps people at bay.  We contribute by being uninterested, unpredictable, short-tempered, judgemental, punitive, hypersensitive, argumentative, or unfriendly; and this becomes part of the system of avoidance between us
+3. Intersections
+  a) combining our two worldviews produces a system of interaction
+  b) by shifting to a contribution frame, we can piece together the elements of the system that led to our fights and talk about how to handle them, only then does communication improve
+  c) treating an intersection as a question of right vs. wrong leads to the death of a great many relationships
+  d) so long as we each continue to see this as a matter of right vs. wrong, rather than an intersection, there is no way to avoid a train wreck.  In contrast, successful relationships are built on the knowledge that in intersections, there's no one to blame.  People are just different.  If we hope to stay together over the long haul, we will sometimes have to compromise our preferences and meet in the middle.
+
+#### 2 Tools for Spotting Contributions
+
+1. Role reversal
+  a) Ask ourselves, "What would they say I'm contributing?"  Pretent we are the other person and answer this question in the first person.
+  b) Seeing ourselves through someone else's eyes can help us understand what we're doing to feed the system
+2. The observer's insight
+  a) Step back and look at the problem from the perspective of a disinterested observer.  How would we describe, in a neutral, nonjudgemental way, what each person is contributing?
+
+#### Map the Contribution System
+
+##### What am I Contributing and What are They Contributing?
+
+1. **Shifters** tend to see themselves as innocent victims, when something goes wrong, it's always because of what someone else did
+2. **Absorbers** tend to feel responsible for everything
+
+We may fear that being the first to own up to some contribution put us in a vulnerable position for the rest of the conversation, this is an important concern, especially if we tend to be a contribution absorber.
+* Taking responsibility for our contribution up front prevents the other person from using it as a shield to avoid a discussion of their own contribution.
+* In addition to taking responsibility for what we have contributed, there are things we can do to help them locate their contribution.
+  * By jotting down the things that triggered us to react, we are starting to get a handle on the actions and reactions that make up the contribution system.
+  * Clarify what we would have them do differently
+    * Making a specific request for how the other person can change their contribution *in the service of helping us change ours* can be a powerful way of helping them understand what they are doing to create and perpetuate the problem.  And it goes to the heart of the purpose of understanding the contribution system, to see what we each need to do differently to influence and improve the situation.
+    * The goal isn't to get an admission, the goal is to understand better what's happened between us, so that we can start to talk constructively about where to go next.
