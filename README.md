@@ -338,3 +338,182 @@ We may fear that being the first to own up to some contribution put us in a vuln
   * Clarify what we would have them do differently
     * Making a specific request for how the other person can change their contribution *in the service of helping us change ours* can be a powerful way of helping them understand what they are doing to create and perpetuate the problem.  And it goes to the heart of the purpose of understanding the contribution system, to see what we each need to do differently to influence and improve the situation.
     * The goal isn't to get an admission, the goal is to understand better what's happened between us, so that we can start to talk constructively about where to go next.
+
+## Have Your Feelings (Or They Will Have You)
+
+* 🙁 If we deny that the emotions are there, then maybe we can avoid the consequences of feeling them.
+* 🙂 Feelings are too powerful to remain peacefully bottled.
+  * They will be heard one way or another, whether in leaks or bursts
+  * If handled indirectly or without honesty, they contaminate communication
+
+### Feelings Matter: They Are Often at the Heart of Difficult Conversations
+
+* Feelings let us know that we are fully alive.
+* Managing feelings can be enormously challenging
+  * Our failure to acknowledge and discuss feelings derails a startling number of difficult converstations
+  * The ability to deal openly and well with feelings can undermine the quality and health of our relationships
+* We can't have an effective conversation without talking about the primary issues as stake, and in difficult conversations, feelings are at the heart of what's wrong
+  * The outcome will not leave us feeling satisfied unless we also talk about how we are feelings
+
+### We Try to Frame Feeling Out of the Problem
+
+* Framing feelings out of the problem is one way we cope with the dilemma of whether to raise something or avoid it
+  * When we lay our feelings on the table, we run the risk of hurting others and of ruining relationships, we also put ourselves in a position to get hurt
+  * By sticking to the "business at hand," we appear to reduce these risks
+* The problem is that when feelings are at the heart of what's going on, they *are* the business at hand and ignoring them is nearly impossible
+  * Framing the feelings out of the conversation is likely to result in outcomes that are unsatisfying for both people
+  * The real problem is not dealt with, and emotions have an uncanny knack for finding their way back into the conversation, usually not in very helpful ways
+
+#### Unexpressed Feelings Can Leak into the Conversation
+
+Unspoken feelings can color the conversation in a number of ways:
+* They alter our affect and tone of voice
+* They express themselves through our body language or facial expressions
+* They may take the form of long pauses or an odd and unexplained detachment
+  * We may become sarcastic, aggressive, impatient, unpredictable, or defensive
+* Most of us can determine when someone is distorting, manufacturing, or withholding an emotion
+  * If clogged, our emotional pipes leak
+* Unexpressed feelings can create so much tension that we disengage
+  * We choose not to work with a particular colleague because we have so many unresolved feelings about them
+
+#### Unexpressed Feelings Can Burst into the Conversation
+
+The problem is not that we are unable to express our feelings, but that we are unable not to.
+* We get angry and show it in ways that are embarrassing or destructive
+* We cry or explode when we would rather act composed and capable
+  * We don't cry or lose our temper because we express our feelings too often, but because we express them too rarely
+
+#### Unexpressed Feelings Make It Difficult to Listen
+
+The two hardest and most important communication tasks in difficult conversations are expressing feelings and listening.
+* When we are having a hard time listening, it is paradoxically because we don't know how ot express ourselves well.
+  * Unexpressed feelings can block the ability to listen
+  * It's hard to hear someone else when we are feeling unheard, even if the reason we feel unheard is that we have chosen not to share
+  * Our listening ability often increases remarkably once we have expressed our own strong feelings
+
+### A Way Out of the Feelings Bind
+
+**This is the way out of the feelings bind:** If we are able to share feelings with skill, we can avoid many of the potential costs associated with expressing feelings and even reap some unexpected benefits.
+1. we need to sort out what our feelings are
+2. we need to negotiate with our feelings
+3. we need to share our actual feelings, not attributions or judgements about the other person
+
+### Finding Our Feelings: Learn Where Feelings Hide
+
+**⭐️ We often don't know how we feel**
+* Before we can get to where we're going, we need to know where we are
+* When it comes to understanding our emotions, most of us are lost
+* Recognizing feelings is challenging
+  * Feelings are very good at disguising themselves as emotions we are better able to handle
+  * Feelings transform themselves into judgements, accusations, and attributions
+
+#### Explore Your Emotional Footprint
+
+As we grow up, each of us develops a characteristic "emotional footprint" whose shape is determined by which feelings we believe are okay to have and express and which are not.
+* Our emotional footprint will be different in different relationships
+  * Exploring the contours of our footprint across a variety of relationships an be extremely helpful in raising our awareness of what we are feeling and why
+
+##### Accept That Feelings Are Normal and Natural
+
+One assumption many of us incorporate into our footprint is the assumption that there is something inherently wrong with having feelings
+* merely *having* feelings, any feelings, is enough to cause us shame
+
+##### Recognize That Good People Can Have Bad Feelings
+
+Another assumption many of us incorporate into our footprint is that there are certain emotions "good people" shoudl never feel
+* Everyone feels and experiences: anger, sadness, failure
+* Denying feelings can serve a deeper psychological function
+  * In the face of overwhelming anxiety, fear, loss, or trauma, removing ourself from our feelings can help us cope with daily life
+  * Unacknowledged feelings adversely affect communiction
+  * As we allow ourselves to feel things that were there all along and begin to deal with the underlying causes of those feelings, our interactions with others, including difficult conversations, will become increasingly easy to handle
+
+##### Learn that Our Feelings Are as Important as Theirs
+
+* There are several reasons why we may choose to honor others feelings even when it means dishonoring our own
+  * The implicit rule we are following is that we should put other people's happiness before our own
+  * When we are more concerned about others' feelings than our own, we teach others to ignore our feelings
+  * One of the reasons we don't raise issues is that we don't want to jeopardize the relationship
+    * But by *not* raising it, the resentment we feel will grow and slowly erode the relationship anyway
+
+##### Find the Bundle of Feelings Behind the Simple Labels
+
+* In many situations, we are blinded to the complexity of our feelings by one strong feeling that trumps all the others
+  * Simply becoming familiar with the spectrum of difficult-to-find feelings may trigger a flash of recognition for you
+
+##### Find the Feelings Lurking Under Attributions, Judgements, and Accusations
+
+* One danger of making attributions about the intentions of others is that it can lead to defensiveness and misunderstandings
+  * The difference between judgements about others and statements of our own feelings is sometimes difficult to see
+    * Judgements *feel* like feelings when we are saying them
+    * While they may feel similar, there is a vast difference between "You are thoughtless and self-absorbed" and "I feel hurt, confused, and embarrased"
+      * Finding feelings that are lurking around and under angry attributions and judgements is a key step in bringing feelings into a conversation effectively
+
+##### Use the Urge to Blame as a Clue fo Find Important Feelings
+
+* A common complaint when we encourage people to talk in term of joint contribtion rather than blame is that the ensuing conversation leaves us feeling unsatisfied
+  * What is satisfying though, is not the failure to express blame, but the failure to express feelings
+  * The urge to blame arises when the contribution system is explored in a feelings vaccuum
+  * When we can't seem to get past needing to say, "Admit it!  This was your fault!" we should recognize that as an important clue that we are sitting on unexpressed emotions
+    * Once those feelings are expressed, the urge to blame recedes
+
+### Don't Treat Feelings as Gospel: Negotiate with Them
+
+* Our feelings are based on our perceptions and our perceptions are negotiable
+  * As we see the world in new ways, our feelings shift accordingly
+  * What does it mean to negotiate with our feelings?
+    * Fundamentally, it involves a recognition that our feelings are formed in response to our thoughts
+      * It's the story we tell ourself about what's happening
+      * In any given situation, our feelings follow our thoughts
+* We need to examine our own story
+  * What is the story we are telling ourselves that is giving rise to how we feel?
+  * What is our story missing?
+  * What might the other person's story be?
+    * Almost always, an increased awareness of the other person's story changes how we feel
+* We need to explore our assumptions about the other person's intentions
+  * To what extent are our feelings based on an untested assumption about their intentions?
+  * How does our view of their intentions affect how we feel?
+* We should consider the contribution system
+  * Are we able to see our own contribution to the problem?
+* It is enough to raise these questions and observe feelings from multiple perspectives
+  * If we are thoughtful, honest, and approach these questions openly with a spirit of fairness, our feelings being to shift
+  * When we consider a situation from another point of view, focusing not on blame, but on contributions, our perception of the situation becomes more complex, as does our feelings
+
+### Don't Vent: Describe Feelings Carefully
+
+**⭐️ Sharing feelings well and clearly requires thoughtfulness**
+
+* Frame feelings back into the problem
+  * Expressing feelings well involves simply remembering that they're important
+  * Almost every difficult conversation will involve strong feelings
+  * If feelings are the real issue, then feelings should be addressed
+* Express the full spectrum of our feelings
+  * By putting the broaded spectrum of our feelings into the conversation, we change the nature of the conversation
+    * This leads to greater understanding and engagement
+    * This points the way toward different patterns of interacting that are more mutally supportive
+* Don't evaluate, just share
+  * Getting everyone's feelings on the table, heard and acknowledged, is essential before we can begin to sort through them
+  * Premature evaluation of whether feelings are legitimate will undermind their expression and the relationship
+* Express our feelings without judging, attributing, or blaming
+  * Talking successfully about feelings requires us to be scrupulous about taking the judgements, attributions, and statements of blame out of what we are saying and putting the statement of feeling in
+  * State the pure feelings first and explore the joint contribution (not blame) later
+* Don't monopolize, both sides can have strong feelings at the same time
+  * If we have strong feelings, it's quite likely that the other person does too
+    * Just as our own ambivalent feelings don't cancel each other out, their feelings don't cancel ours, or vice versa
+    * What's important is to get both parties' strong and perhaps conflicting emotions into the conversation
+* An easy reminder: Say "I feel..."
+  * These words can have a powerful effect on our listener
+  * Beginning with "I feel..." is a simple act that carries with it extraordinary benefits
+    * It keeps the focus on feelings and makes clear that we are speaking only from our own perspective
+    * It avoids the translation trap of judging or accusing
+
+### The Importance of Acknowledgement
+
+Describing feelings is an important first step along the road toward getting things resolved, but we can't leap from there directly into problem-solving.
+* Each side must have their feelings *acknowledged* before we can even start problem solving
+  * Acknowledgement cannot be skipped
+  * Acknowledgement of feelings is crucial in any relationship
+* What does it mean to acknowledge someone's feelings?
+  * Letting the other person know that what they have said has made an impression on us, that their feelings matter to us, and that we are working to understand them
+  * Let them know we thinking understanding their perspective is important and that we are trying to do so
+* Before moving onto problem-solving, we have a responsibility to ourself and to the other person to ensure that they appreciate the importance of this topic to us
+  * We truly understand each other's feelings and value having shared them
