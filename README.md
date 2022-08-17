@@ -517,3 +517,134 @@ Describing feelings is an important first step along the road toward getting thi
   * Let them know we thinking understanding their perspective is important and that we are trying to do so
 * Before moving onto problem-solving, we have a responsibility to ourself and to the other person to ensure that they appreciate the importance of this topic to us
   * We truly understand each other's feelings and value having shared them
+
+## Ground Your Identity: Ask Ourself What's at Stake
+
+Difficult convesations have the potential to disrupt our sense of who we are in the world, or to highlight what we hope we are but fear we are not.  The conversation poses a threat to our identity (the story we tell ourselves about ourselves) and having our identity threatened can be profoundly disturbing.
+
+### Three Core Identities
+
+Three identity issues seem particularly common, and often underlie what concerns us most during difficult conversations:
+
+1. Am I competent?
+2. Am I a good person?
+3. Am I worthy of love?
+
+### Vulnerable Identities: The All-or-Nothing Syndrome
+
+The biggest factor that contributes to a vulnerable identity is "all-or-nothing" thinking: I'm either competent or incompetent, good or evil, worthy of love or not.
+* The primary peril of all-or-nothing thinking is that it leaves our identity extremely unstable, making us hypersensitive to feedback
+  * All-or-nothing thinking gives ourselves 2 choices:
+    * Denial: Either we try to deny the information that is inconsistent with our self-image
+    * Exaggeration: Or we do the opposite, we take in the information in a way that exaggerates its importance to a crippling degree
+
+#### Denial
+
+If we're going to engage in difficult conversations, or in life for that matter, we're going to come up against information about ourselves that we find unpleasant.
+* Denial requires a huge amount of psychic energy, and sooner or later the story we're telling ourselves is going to become untenable.
+
+#### Exaggeration
+
+When we exaggerate, we act as if the other person's feedback is the *only* information we have about ourselves.
+
+### Ground Our Identity
+
+1. We need to become familiar with those identity issues that are important to us, so we can spot them during a conversation
+2. We need to learn to integrate new information into our identity in ways that are healthy, a step that requires us to let go of all-or-nothing thinking
+
+#### Step 1: Become Aware of Our Identity Issues
+
+Often during a difficult conversation we are not even aware that our identity is implicated.  The connection to our identity is not obvious.
+* We each have our own particular sensitivities.  To become more familiar with ours, observe whether there are patterns to what tends to knock us off balance during difficult conversations
+  * Then ask ourself why:
+    * What about our identity feels at risk?
+    * What does this mean to you?
+    * How would it feel if what you fear were true?
+
+#### Step 2: Complexify Our Identity (Adopt the "And Stance")
+
+**⭐️ A self-image that allows for complexity is healthy and robust; it provides a sturdy foundation on which to stand**
+
+We can begin to complexify our self-image.  This means moving away from the false choice between "I am perfect" and "I am worthless," and trying to get as clear a picture as we can about what is actually true about us.
+* All-or-nothing identities oversimplify the world
+  * No one is *always* anything
+* We each exhibit a constellation of qualities, positive and negative, and constantly grapple with how to respond to the complicated situations life presents.
+* We don't always respond as competently or compassionately as we'd like
+
+### Three Things to Accept About Ourself
+
+As we move away from an all-or-nothing identity and toward a more complex view of who we are, we will notice that it is easier to accept certain parts of ourself that have given us trouble in the past.
+
+There are three characteristics that are particularly important to be able to accept about ourself in difficult conversations.  The more easily we can admit to our own mistakes, our own mixed intentions, and our own contributions to the problem, the more balanced we will feel during the conversation, and the higher the chances it will go well.
+
+#### 1. We Will Make Mistakes
+
+**⭐️ One reason people are reluctant to admit mistakes is that they fear being seen as weak or incompetent.  Yet often, generally competent people who take the possibility of mistakes in stride are seen as confident, secure, and "big enough" not to have to be perfect, whereas those who resist acknowledging even the possibility of a mistake are seen as insecure and *lacking* confidence.  No one is fooled.**
+
+If we can't admit to ourself that we somtimes make mistakes, we will find it more difficult to understand and accept legitimate aspects of the other person's story about what is going on.
+* When we hold ourself to an all-or-nothing standard, even a small mistake can seem catastrophic and almost impossible to admit.
+  * We won't be able to engage in a meaningful learning conversation; and if we can't do that, we are likely to make the same mistakes again
+
+#### 2. Our Intentions are Complex
+
+We know that our past behavior was not always motivated by good intentions.
+* By being honest with our complex motivations, we can be more genuine and admit our shortcomings
+
+#### 3. We Have Contributed to the Problem
+
+We can assess and take responsibility for what we've contributed to the problem.
+
+### During the Conversation, Learn to Regain Balance
+
+Four things we can do before and during a difficult conversation to help ourself maintain and regain our balance include:
+
+1. letting go of trying to control their reaction
+2. preparing for their response
+3. imaginging the future to gain perspective
+4. taking a break
+
+#### 1. Let Go of trying to Control Their Reaction
+
+We may hold as one of our primary goals getting through the conversation without the other person having a "bad" reaction.
+* Yet holding this as a *purpose* in the conversation leads to trouble.
+  * Just as we can't change another person, we can't control their reaction and we shouldn't try
+  * Trying to sooth over or stifle the other person's reaction will make things worse, not better
+    * The message the other person is lifely to hear is "I don't understand how you feel" or worse, "You're not allowed to be upset by this."
+* Rather than trying to control the other person's reaction, adopt the "And Stance"
+  * Giving them space to feel however they are feeling and letting them know their feelings make sense and are okay to feel.
+  * Learning that we can't control the other person's reaction, and that it can be destructive to try, can be incredibly liberating
+    * We will feel free from the desparate need for their reaction to go one certain way
+
+#### 2. Prepare for Their Response
+
+Instead of trying to control the other person's reaction, *prepare* for it.
+* Focus on what we can learn about how the other person might respond
+  * Are they likely to cry?
+  * Sulk and withdraw?
+  * Pretend everything is fine?
+  * Attack or reject us?
+* The more prepare we are for how the other person might react, the less surprised we will be.
+  * If we've already considered the identity implications of how they might react, we are far less likely to be knocked off balance in the moment
+
+#### 3. Imaginging the Future
+
+Sometimes projecting ourself into our own future can help us feel better about what's happening now with the reassurance that eventually we will feel better, and that someday it may not seem so important.
+* Thinking of our future self looking back can also give us some direction
+  * If we are in the midst of a particularly painful time, think about what it will feel like to look back on this period in our life from thirty years hence.
+
+#### 4. Take a Break
+
+* Check for distortions
+* Check for denials
+* Check for exaggerations
+
+### Their Identity is Also Implicated
+
+When we are wrapped up in our own Identity Conversation it can be difficult to remember that the other person may be grappling with identity issues of their own.
+* Often difficult conversations are wrapped up in both people reacting to what the conversation seems to be saying about them.
+
+### Find the Courage to Ask for Help
+
+For many of us, that's not easy.  Our Identity Conversation tells us loud and clear that asking for help is not okay, that it is shameful or weak and creates burdens for others.
+* If someone you loved were in the situation we find ourself in, would we think it was okay for *them* to ask for help?
+  * Why should we be held to a different standard?
