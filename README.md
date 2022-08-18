@@ -648,3 +648,79 @@ When we are wrapped up in our own Identity Conversation it can be difficult to r
 For many of us, that's not easy.  Our Identity Conversation tells us loud and clear that asking for help is not okay, that it is shameful or weak and creates burdens for others.
 * If someone you loved were in the situation we find ourself in, would we think it was okay for *them* to ask for help?
   * Why should we be held to a different standard?
+
+## What's Our Purpose?  When to Raise It and When to Let Go
+
+### Work Through the Three Conversations
+
+Get a better handle on our feelings, key identity issues, and possible distortions or gaps in our perceptions.  Think clearly about what we do know (our own feelings, our own experiences, and story, our identity issues), and what we don't know (their intentions, their perspective, or feelings).
+* This approach will help us become more aware of the process of communication and gain insight into what's making our conversations difficult.
+
+### Three Kinds of Conversations That Don't Make Sense
+
+#### Is the Real Conflict Inside Us?
+
+Sometimes what's difficult about the situation has more to do with what's going on inside us than what's going on between us an the other person.
+
+#### Is There a Better Way to Address the Issue Than Talking About It?
+
+As we sort out our feelings or identify our contribution to a situation it may become clear that what's called for is not a conversation about the interaction, but a change in our behavior.  Sometimes actions are better than words.
+
+#### Do We Have Purposes That Make Sense?
+
+We find ourselves in the middle of the conversation, and neither person is quite sure what the point is or what a good outcome would look li56ke.
+* If our purposes are off-base, then we've choosen a destination that is impossible to reach
+
+### Remember We Can't Change Other People
+
+We can't change someone else's mind or force them to change their behavior.
+* The paradox is that trying to change someone rarely results in change
+  * Others are more likely to change if they think we understand them and if they feel heard and respected
+  * They are more likely to change if they feel free *not* to
+
+### Don't Focus on Short-Term Relief at Long-Term Cost
+
+Take time investing in the relationship in trying to work on figuring out why things are been so difficult.
+
+#### Don't Hit and Run
+
+**⭐️ If hit-and-run is all we can muster, it's better not to raise the issue at all**
+
+Short passive-aggressive comments and venting may offer short-term relief at long-term cost.
+* While our comments may help us feel a bit better temporarily ("At least I've said something"), they make the other person defensive and frustrated, which is unlikely to produce the kind of change we had in mind.
+* If we're going to talk, then talk.  Really talk.  And if we're going to talk, we can't do it on the fly, we have to plan a time to talk.  We have to be explicit about wanting ten minutes or an hour to discuss something that is important to us.
+
+### Letting Go
+
+What we do know is that letting go usually takes time, and that it is rarely a simple journey.  It's not easy to find a place where we can set free the pain, or shame, we carry from our experiences.  A place where we can tell the story differently in our head, where we can relinquish the role of victim or villain, and give ourself and the other person roles that are more complex and liberating.  A place where we can accept ourself for who we've been and who we are.
+
+#### It's not My Responsibility to Make Things Better; It's My Responsibility to Do My Best
+
+We cannot always make a relationship more comfortable or more nourishing or more intimate or more durable.  The best we can do is try.
+* Rather than continue to fight, it my be easier to accept others as their imperfect selves
+
+#### The Conflict Is Not Who I Am
+
+An important barrier to letting go occurs when we integrate the conflict into our sense of who we are.  We define ourselves in relation to our conflict with others.
+* Such dynamics play an important part in ethnic conflict.  Our sense of who we are as a community is often defined in terms of who we are *not*, who we are against, and what hardships we've endured.  Tragically, we can feel threatened by the prospect of reconciliation, because it can rob us not only of our role, but also of our communal identity
+  * If we find ourselve being swalled up by a conflect, if we begin to see our very identity as tied to the fight, try to take a step back and remember why we are fighting.  We are fightign for what is right and fair, not because we need the conflict to survive
+
+#### Letting Go Doesn't Mean We No Longer Care
+
+It is powerful being able to let go of anger while still holding on to love and memories.  We can't and don't want to forget what's happened in the past.
+* Letting go of emotions and identity issues wrapped up in a difficult conversation can be one of the most challenging things we do.
+  * Difficult conversations operate at the core of our being, where the people and the principles we care about most intersect with our self-image and self-esteem.
+  * Letting go, at heart, is about how to handle with skill and grace *not* having a difficult conversation
+
+### If We Raise It: Three Purposes That Work
+
+The gold standard here is working for mutual understanding.  Not mutual agreement, necessarily, but a better understanding of each of our stories, so that we can make informed decisions (alone or together) about what to do next.
+
+1. Learn their story
+2. Express our views and feelings
+3. Problem solving together
+
+#### Stance and Purpose Go Hand in Hand
+
+These three purposes accomodate the fact that we and the other person see the world differently, that we each have powerful feelings about what is going on, and that we each have our own identity issues to work through.  Each of us, in short, has our own story.  We need purposes that can reckon with this reality.
+
