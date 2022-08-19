@@ -724,3 +724,74 @@ The gold standard here is working for mutual understanding.  Not mutual agreemen
 
 These three purposes accomodate the fact that we and the other person see the world differently, that we each have powerful feelings about what is going on, and that we each have our own identity issues to work through.  Each of us, in short, has our own story.  We need purposes that can reckon with this reality.
 
+## Getting Started: Begin from the Third Story
+
+The most stressful moment of a difficult conversation is often the beginning.  We may become angry or distraught or we may discover that we don't want to talk at all.
+* What we say at the outset can put us squarely on the road toward understanding and problem-solving.
+* There are techniques we can learn for how to take advantage of the opportunity the beginning presents, and simple principles for understanding why our usual approaches so often do awry.
+
+### Why Our Typical Openings Don't Help
+
+#### We Begin Inside Our Own Story
+
+We describe the problem from our own perspective and, in doing so, trigger just the kinds of reactions we hope to avoid.
+* If they agreed with our story, we probably wouldn't be having this conversation in the first place.
+* Our story sends up flares, warning them to defend themselves or to counterattach
+
+#### We Trigger Their Identity Conversation from the Start
+
+We trigger the other person's Identity Conversation from the outset, and there's no room in our agenda for their story.
+* It's natural that they would reject our version and want to get their own on the table
+* By leaving their story out, we implicity set up a trade-off between their version of events and our version, between our feelings and theirs
+
+### Step One: Begin from the Third Story
+
+#### Think Like a Mediator
+
+One of the most helpful tools a mediator has is the ability to identify this invisble Third Story.  This means describing the problem between the parties in a way that rings true for both sides simultaneously.
+* The trick is being able to get two people with different stories to sign on to the same description of what is going on.
+
+#### Not Right or Wrong, Not Better or Worse - Just Different
+
+The key is learning to describe the gap or difference between our story and the other person's story.  Whatever else we may think and feel, we can at least agree that we and the other person see things differently.
+
+##### The Third Story
+
+Removes judgement from the description, and instead describes the problem as a *difference*.
+* The third story simply captures the difference
+  * That's what allows both sides to buy into the same description of the problem: each feels that their story is acknowledged as a legitimate part of the discussion.
+* We can begin from the Third Story by saying, "My sense is that we see this situation differently.  I'd like to share how I'm seeing it, and learn more about how you're seeing it."
+  * Most conversations can be initiated from the Third Story to include both perspectives and invite joint exploration.
+  * Stepping out of our story doesn't mean giving up our point of view.
+    * Our purpose in opening the conversation is to invite the other person into a joint exploration.
+    * In the course of that exploration, we will spend time in each side's perspective, and then come back to adjust our own views based on what we've learned and what we've shared.
+  * Keeping communication open and understanding feelings and perspectives involved sends an important message that even when we disagree, we care about each other.
+
+### Step Two: Extend an Invitation
+
+I want to propose mutual understanding and problem-solving as purposes, check to see if this makes sense to you, and invite you to join me in a conversation.
+
+#### Describe Our Purposes
+
+Letting them know up front that our goal for the discussion is to understand their perspective better, share our own, and talk about how to go forward together makes the conversation significantly less mysterious and threatening.
+
+#### Invite, Don't Impose
+
+Our offer should be open to modification by the other person.
+* Think of the hoal rather as "offering and discussing a possible description and purpose" for our conversation.
+* The task of describing the problem and of setting purposes is itself a joint task
+
+#### Make Them a Partner in Figuring It Out
+
+We need to side-step the temptation to cast them as "the problem," or in an unappealing light, since this will trigger their Identity Conversation and stop the conversation cold.
+* If accepting our invitation requires the other person to acknowledge that they are naive, callous, manipulative, or in any other way unsavory or inadequate, they are substantially less likely to accept it.
+* The role we offer must be genuine, recasting them into a more attractive role requires recognizing that if we are going to gain a more complete picture of what's going on, and make any real progress, we need their help.
+* Sometimes the most genuine thing we can do is share our internal struggle to cast them in a more positive role.
+  * We can say something like, "They story I'm telling my head about what is going on is that you are being inconsiderate.  At some level I know that's unfair to you, and I need you to help me put things in a better perspective.  I need your to help me understand where you are coming from on this."
+    * It's honest and, at the same time, offers them a role of "someone who can help us get our perspective back."
+
+### A Map for Going Forward: Third Story, Their Story, Your Story
+
+* We can talk about the past experiences that have led each of us to see the current situtation the way we do
+* We can ask about the other person's intentions, and share the impact of their behavior on us
+* We can empathize with how they might be feeling
