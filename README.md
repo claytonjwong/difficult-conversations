@@ -795,3 +795,166 @@ We need to side-step the temptation to cast them as "the problem," or in an unap
 * We can talk about the past experiences that have led each of us to see the current situtation the way we do
 * We can ask about the other person's intentions, and share the impact of their behavior on us
 * We can empathize with how they might be feeling
+
+## Learning: Listen from the Inside Out
+
+We have a deep desire to feel heard, and to know that others care enough to listen.
+* Listening well is one of the most powerful skills we can bring to a difficult conversation.
+  * It helps us understand the other person
+    * learning about the other person (they are important to us)
+  * It helps the other person understand us
+
+### Listening to Them Helps Them Listen to You
+
+One of the most common complaints we hear from people engaged in difficult conversations is that the other person won't listen.
+* Paradoxically, we must listen to them first
+* The reason the other person is not listening is because they don't feel heard
+  * They aren't listening to us for the same reason we aren't listening to them
+    * If the block to their listening is that they don't feel heard, then the way to remove that block is by helping them feel heard, by bending over backwards to listen to what they have to say, and by demonstrating that we understand what they are saying and how they are feeling.
+    * Listen for feelings, like frustration or pride or fear, and acknowledge those feelings
+
+### The Stance of Curiosity: How to Listen from the Inside Out
+
+**⭐️ We can shift our stance from "I understand" to "Help me understand."**
+
+#### Forget Words, Focus on Authenticity
+
+People "read" not only our words and posture, but what's going on inside of us.
+* If our "stance" isn't genuine, the words won't matter.
+* What will be communicated is whether we are genuinely curious and care about the other person
+  * If our intentions are false, no amount of careful wording or good posture will help
+  * If our intentions are good, even clumsy language won't hinder us
+* Listening is powerful and effective when it is authentic
+  * Authenticity means that we are listening because we are curious and because we care, not just because we are supposed to
+    * ⭐️ **Are you curious? Do you care?**
+
+#### The Commentator in Our Head: Become More Aware of Our Internal Voice
+
+We can tell what's going on inside ourselves by listening to ourselves.
+* Finding and paying attention to our own internal voice, what we are thinking but not saying, is the crucial first step in overcoming the biggest barrier to inauthentic listening
+* Left unattended, that voice blocks good listening
+  * To the extend we are listening to our own internal voice, we are at best half-listening to the other person
+* We can turn up our internal voice and get to know the kinds of things it says
+  * When we are fully aware of our own thoughts, we can begin to manage them and focus on the other person
+
+#### Managing Our Internal Voice
+
+**⭐️Managing our internal voice is not easy, especially at first; but it is at the heart of good listening**
+* 🙁 When our internal voice says "I know what this is all about," that's the end of curiosity.
+* Remind ourselves that if we think we already understand how someone else feels or what they are trying to say, it is a delusion.
+  * There is always more to learn
+  * Remind ourself of the depth, complexities, contradictions, and nuances that make up the stories of each of our lives
+
+### Three Skills
+
+In addition to the stance of curiosity, there are three primary skills that good listeners employ:
+
+1. Inquiry,
+2. Paraphrasing, and
+3. Acknowledgement
+
+#### Skill One: Inquiry
+
+We can tell whether a question will help the conversation or hurt it by thinking about why we asked it.
+* The only good answer is "To learn."
+
+##### Don't Make Statements Disguised as Questions
+
+If we don't have a question, don't ask a question.
+* Never dress up an assertion as a question
+  * Disguised assertions are either about feelings or about requests
+    * Sharing our feelings and making requests are two things that many of us have difficulty doing directly because they make us feel vulnerable
+      * Turning what we have to say into an attack, a sarcastic question can feel safer, but this safety is an illusion, and we lose more than we gain
+        * Why? Because instead of hearing the underlying feeling or request, the other person focuses on the sarcasm and the attack
+        * The real message doesn't get through because they are distracted by the need to defend themselves
+* Doing so creates confusion and resentment because such questions are inevitably heard as sarcastic and sometimes mean-spirited
+
+##### Don't Use Questions to Cross-Examine
+
+To use the ideas in these questions constructively, pull out the statements embedded in the questions and express them, but not as facts.
+* Rather than asserting them as true, share them as open questions or perceptions, and ask for the other person's reaction
+* Rather than assuming that this is an argument they have ignored, assume that they *have* thought about it and have reason to tell a different story
+
+##### Ask Open-Ended Questions
+
+Open-ended questions are questions that give the other person broad latitude in how to answer.
+* They elicit more information that yes/no questions or offering menus
+* Typical open-ended questions are varations on:
+  * "Tell me more"
+  * "Help me understand better"
+
+##### Ask for More Concrete Information
+
+To understand where the other person's conclusions came from and enrich our understanding of what they envision going forward, it helps to ask them to be more explicit about their reasoning and their vision.
+
+##### Ask Questions About the Three Conversations
+
+* Can you say a little more about how you see things?
+* What information might you have that I don't?
+* How do you see it differently?
+* What impact have my actions had on you?
+* Can you say a little more about why you think this is my fault?
+* Were you reacting to something I did?
+* How are you feeling about all of this?
+* Say more about why this is important to you.
+* What would it mean to you if that happened?
+
+##### Make It Safe for Them to Not Answer
+
+It's better to make our questions an invitation rather than a demand and to make that clear.
+* The difference is that an invitation can be declined without penalty
+  * This offers a greater sense of safety
+  * If the other person declines to respond and our reaction makes that okay, then we build trust between us
+    * Giving them a choice of whether to answer increases the chance that they will respond and respond honestly
+    * Knowing that it's their choice underscores our caring intent and frees them to think about the question
+
+#### Skill Two: Paraphrasing
+
+Paraphrasing is when we express to the other person, in our own words, our understanding of what they are saying.
+
+##### Check Our Understanding
+
+Paraphrasing gives us a chance to check our understanding.
+* Difficult conversations are made harder when an important misunderstanding exists
+  * Such misunderstandings are more common than we imagine
+
+##### Show That We've Heard
+
+Paraphrasing lets the other person know they've been heard.
+* If we notice the other person is saying the same thing over and over again, take that as a signal that we need to paraphrase more
+* Once they feel heard, they are significantly more likely to listen to us
+
+#### Skill Three: Acknowledge Their Feelings
+
+Feelings crave acknowledgement.
+* Unless they get acknowledgement they need, feelings will cause trouble in the conversation
+
+##### Ask the Invisible Questions
+
+Why is acknowledgement so important?
+* Because attached to each expression of feelings is a set of invisible questions:
+  * "Are my feelings okay?"
+  * "Do you understand my feelings?"
+  * "Do you care about my feelings?"
+* Taking time to acknowledge the other person's feelings say loud and clear that the answer to each question is "yes."
+
+##### Order Matter: Acknowledge Before Problem-Solving
+
+Often people need some acknowledgement of feelings before they can move on to the "What Happened?" Conversation.
+
+###### Acknowledging is Not Agreeing
+
+It is useful to distinguish between the Feelings Conversation and the "What Happened?" Converstation.
+* While we may not agree with the substance of what the other person is saying, we can still acknowledge the importance of their feelings
+* It requires thought to make these kinds of distinctions, but it can help immensely.
+  * Too often we assume that we either have to agree or disagree with the other person
+  * We can acknowledge the power and importance of the feelings, while disagreeing with the substance of what is being said
+
+### Empathy Is a Journey, Not a Destination
+
+The deepest form of understanding another person is empathy.
+* As an empathetic listener, we are on a journey with a direction but no destination.
+  * We will never "arrive"
+  * Good listening is profoundly communicative
+  * Struggling to understand communicates the most positive message of all
+
