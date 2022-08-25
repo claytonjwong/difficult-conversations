@@ -958,3 +958,147 @@ The deepest form of understanding another person is empathy.
   * Good listening is profoundly communicative
   * Struggling to understand communicates the most positive message of all
 
+## Expression: Speak for Yourself with Clarity and Power
+
+The other person also needs to hear our story.  We need to express ourself.
+* In a difficult conversation, our primary task is not to persuade, impress, trick, outwit, convert, or win over the other person.
+  * It is to express what we see and why we see it that way, how we feel, and who we are
+  * Self-knowledge and the belief that what we want to share is important will take us significantly further than eloquence and wit
+* To communicate with clarity and power, we must first negotiate ourself into a place where we truly believe that what we want to express is worthy of expression
+  * A belief that our views and feelings are as important as anyone else's
+
+### You Are Entitled (Yes, You)
+
+> Whenever I have felt intimidated or mistreated by someone above me, I remember this: we are all equal in the eyes of God
+
+* We all deserve to be treated with respect and dignity
+* My views and feelings are as legitimate, valuable, and important as everyone else's
+  * What is most important to me must be spoken, made verbal and shared, even at the risk of having it bruised or misunderstood
+* We can learn to work and speak when we are afraid
+  * We have been socialized to respect fear more than our own needs
+* Recognizing our entitlement can help us find our voice in a conversation and the courage to stand up for ourself when we feel frightened or powerless
+
+#### Beware Self-Sabotage
+
+Sometimes we feel trapped between the belief that we should stand up for ourselves and a hidden feeling that we don't deserve to be heard, that we're not entitled.
+* Before proceeding, we need to engage in our Identity Conversation
+  * Why aren't I entitled?
+    * Whose voice from my past do I hear in my head telling me I'm not?
+    * What would I need to feel fully entitled to speak up?
+
+#### Failure to Express Ourself Keeps Us Out of the Relationship
+
+When we fail to share what's most important to us, we detach ourselves from others and damage relationships.
+* Expressing ourself can be difficult and trying, but it gives the relationship a chance to change and to become stronger
+* A relationship takes hold and grows when both participants experience themselves and the other as being authentic
+  * Such relationships are both more comfortable and nourishing to the soul
+
+#### Feel Entitled, Feel Encouraged, But Don't Feel Obligated
+
+We are entitled to express ourselves.
+* Expressing ourself is often extremely difficult
+* Finding the courage to do it is a lifelong process
+
+### Speak to the Heart of the Matter
+
+#### Start with What Matters Most
+
+There's no better place to begin our story than with what is at the very heart of the matter for us
+* "For me, what this is really about is..."
+* "What I'm feeling is..."
+* "What is important to me is..."
+
+Sharing what's important to us is common sense, and yet it's advice we often neglect
+* This is unfortunately all typical of many difficult conversations
+* We say the least important things, sometimes over and over again
+  * Then we wonder why the other person doesn't realize what we really think and how we really feel
+* As we embark upon a difficult converstation, ask ourself:
+  * "Have I said what is at the heart of the matter for me?"
+  * "Have I shared what is at stake?"
+    * If not, ask ourself why, and see if we can find the courage to try
+
+#### Say What We Mean: Don't Make Them Guess
+
+One way we often skirt sharing things that are important to us is by embedding them in the subtext of the conversation rather than simply stating them outright.
+* We need to figure out what we are really thinking and feeling, and then say it directly
+
+##### Avoid Easing In
+
+A related and often destructive way to communicate is through subtext/
+* We try to soften a message by delivering it indirectly through hints and leading questions
+* Easing in conveys three messages:
+  * We have a view/perspective
+  * This is too embarrassing to discuss directly
+  * We are not going to be straight with the other person
+* These messages increase both sides' anxiety and defensiveness
+  * The recipient's imagination almost always confures up a message worse than the real one
+* A better approach is to make the subject clear and discussable by stating our thoughts straight out
+  * Indicating honestly that we are interested in whether the other person sees the situation differently and if so, how
+
+#### Don't Make Our Story Simplistic: Use the "Me-Me" And
+
+For others to understand us, we need to make what we say clear and simple.
+* The problem is this: what's going on in our heads is often a jumble of complex thoughts, feelings, assumptions, and perceptions
+  * When we try to be simple, we often end up being incomplete
+* "Me-Me" And is useful for overcoming a common obstacle to starting a difficult conversation: the fear of being misunderstood
+
+### Telling Our Story with Clarity: Three Guidelines
+
+**⭐️ Clarity is the key.**
+
+How we express ourself makes a difference.  How we say what we want to say will determine, in part, how others respond to us, and how the conversation will go.
+
+
+#### 1. Don't Present Our Conclusions as *The* Truth
+
+Presenting our story as the truth creates resentment, defensiveness, and leads to arguments
+* It's an easy mistake to make
+* Based on error of thought
+  * We think we experience our beliefs, opinions, and judgements as facts
+    * Facts are facts.  Everything else is everthing else.
+      * We need to be vigilant about this distinction
+      * Clearly distinguish between our views/feelings and what the facts are
+
+#### 2. Share Where Our Conclusions Come From
+
+1. The first step toward clarity is to share our conclusions and opinions as *our* conclusions and opinions, not as the truth
+2. The second step is to share what's beneath our conclusions, the information we have and how we have interpreted it
+
+Often we merely trade our conclusions back and forth, and never get into the process of exploring where these views come from.
+* We have information about ourself which the other person has no access to
+  * That kind of information can be important, consider sharing it
+  * We have life experiences that are influencing what we think and why, as well as how we feel
+
+#### 3. Don't Exaggerate with "Always" and "Never": Give Them Room to Change
+
+In the heat of the moment, it's easy to express frustration through a bit of exaggeration.
+* "Always" and "never" do a pretty good job of conveying frustration, but they have two serious drawbacks
+  * It's seldom strictly accurate, and using such words invites an argument over the question of frequency
+  * These words make it harder for the other person to consider changing their behavior
+    * "always" and "never" suggest that change will be difficult or impossible
+
+A better approach is to proceed as if (however hard it may be to believe) the other person is imply unaware of the impact of their actions on us, and, being a good person, would certainly wish to change their behavior once they became aware of it.
+* The key is to communicate our feelings in a way that invites and encourages the recipient to consider new ways of behaving, rather than suggesting they are a schmuck and it's too bad there's nothing they can do about it
+
+### Help Them Understand You
+
+It's not easy to step into someone else's story.  It's especially hard when the issues are emotionally charged or when our views are rooted in a different generation or radically dissimilar corporate culture.  We will need their help in understanding them, and they will need our help in understanding us.
+* Recognize that different people take in information at different speeds and in different ways
+  * Pay attention to these differences
+
+#### Ask Them How They See It Differently, and Why
+
+Explaining our story clearly is the first step toward being understood.
+* If the other person seems puzzled or unpersuaded by our story, rather than putting it more forcefully or trying to tell it in a different way, ask how *they* see it.
+  * In particular, ask how they see it *differently*
+* A common tendency is to ask for agreement
+  * Asking the other person how they see it differently is more helpful
+  * If we ask explicity for how they see it differently, we are more likely to discover their true reaction
+    * Then we can begin to have a real conversation
+
+The secret to powerful expression is recognizing that we are the ultimate authority on ourself.
+* We are an expert on what we think, how we feel, and why we've come to this place
+* If we think it or feel it, we are entitled to say it
+* Speak fully the range our of experience and we will be clear
+  * Speak for ourself and we can speak with power
+
