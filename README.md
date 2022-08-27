@@ -1196,3 +1196,57 @@ Most difficult conversations are not a single conversation.  They are a series o
 
 We should have follow-up conversations to check in and, if necessary, look for new ways to cope.
 
+## A Difficult Conversations Checklist
+
+### Step 1: Prepare by Walking Through the Three Conversations
+
+* Sort out **What Happened**
+  * Where do our story and their story come from?
+     * (information, past experience, rules)
+  * What impact has this situation had on us?
+    * What might their intentions have been?
+  * What have we each contributed to the problem?
+* Understand **Emotions**
+  * Explore our emotional footprint, and the bundle of emotions we experience
+* Ground our **Identity**
+  * What's at stake for us *about ourself*?
+  * What do we need to accept to be better grounded?
+
+### Step 2: Check Our Purposes and Decide Whether to Raise the Issue
+
+* **Purposes:**
+  * What do we hope to accomplish by having this conversation?
+    * Shift our stance to support learning, sharing, and problem-solving
+* **Deciding:**
+  * Is this the best way to address the issue and achieve our purposes?
+  * Is the issue really embedded in our Identity Conversation?
+  * If we don't raise it, what can we do to help ourself let go?
+
+### Step 3: Start from the Third Story
+
+* Describe the problem as the **difference** between our stories
+  * Include both viewpoints as a legitimate part of the discussion
+* Share our **purposes**
+* **Invite** them to join us as a *partner* in sorting out the situation together
+
+### Step 4: Explore Their Story and Ours
+
+* **Listen to understand** their perspective on what happened.
+  * Ask questions
+  * Acknowledge feelings behind the arguments and accusations
+  * Paraphrase to see if we've got it
+    * Try to unravel how the two of us got to this place
+* **Share our own viewpoint**, our past experiences, intentions, and feelings
+* **Reframe, reframe, reframe** to keep on track.
+  * Truth 👉 Perceptions
+  * Blame 👉 Contributions
+  * Accusations 👉 Feelings
+
+### Step 5: Problem-Solving
+
+* Invent **options** that meet each side's most important concerns and interests
+* Look to **standards** for what *should* happen.
+  * Keep in mind the standard of mutual caretaking
+    * Relationships which always go one way rarely last
+* Talk about how to keep **communication** open as we go forward
+
