@@ -1102,3 +1102,97 @@ The secret to powerful expression is recognizing that we are the ultimate author
 * Speak fully the range our of experience and we will be clear
   * Speak for ourself and we can speak with power
 
+## Take the Lead
+
+When the other person heads in a destructive direction, *reframing* puts the conversation back on course.  It allows us to translate unhelpful statements into helpful ones.  *Listening* is not only the skill that lets us into the other person's world; it is also the single most powerful move we can make to keep the conversation constructive.
+
+### We can Reframe
+
+Truth 👉 Different stories
+Accusations 👉 Intentions and impact
+Blame 👉 Contribution
+Judgements and characterizations 👉 Feelings
+What's wrong with you 👉 What's going on for them
+
+### It's Always the Right Time to Listen
+
+**⭐️ Whenever we feel overwhelmed or unsure how to proceed, remember that it is *always* a good time to listen**
+
+No matter how good we get at reframing, the single most important rule about managing the interaction is this: we can't move the conversation in a more positive direction until the other person feels heard and understood.
+* Persistence in difficult conversations means remaining as stubbornly interested in hearing the other person's views as we are in asserting our own
+
+### Name the Dynamic: Make the Trouble Explicit
+
+Naming the dynamic can help by putting on the table as a topic for discussion what we see happening in the conversation itself.
+* We are acting as our own "conversation doctor"
+  * Diagnosing the problem and prescribing a way back to health
+
+### Now What?  Begin to Problem-Solve
+
+This is the time for problem-solving.  Fundamentally, problem-solving consists of gathering information and testing our perceptions, creating options that would meet both sides' primary concerns, and, where we can't, trying to find fair ways to resolve the difference.
+
+#### It Takes Two to Agree
+
+If we find problem-solving difficult and anxiety producing, it may be because we are focused on persuading them.
+* We need to persuade them no more and no less than they need to persuade us.
+  * We always have the option to turn the tables, to invite them to persuade us and insist that they do
+* Realizing we don't have to agree brings a sense of great liberation, relief, and empowerment
+
+#### Gather Information and Test Our Perceptions
+
+Divergent views are often rooted in one or more conflicting assumptions or hypotheses.
+* If these can be identified, then we can discuss what would constitute a fair test of which assumption is empirically valid, or to what extent it is valid
+  * To be persuasive, such a test needs to satisfy both parties that it is fair and adequate
+
+##### Say What Is Still Missing
+
+As we struggle with conflicting perceptions and conclusions, each of us needs to say unambiguously where the other person's story still doesn't make sense to us.
+* As we follow *their* reasoning, what's missing that would make their version make sense?
+
+##### Say What Would Persuade Us
+
+Being open to persuasion is a powerful stance to have.  It allows us to be honest and firm about our current views, and to listen to theirs.
+* "Based on my understanding..."
+  * Is your understanding different?
+
+##### Ask What (If Anything) Would Persuade Them
+
+I'm wondering if there is anything I could say that would persuade you otherwise and, if so, what would it be?
+
+##### Ask Their Advice
+
+Help me understand how you would feel and how you might think about the situation, if you were in my shoes.  What would you do?  Why?
+
+##### Invent Options
+
+Many difficult situations are amenable to creative solutions that meet most of everyone's needs, but which may not be obvious and make take some effort to find.
+* This calls for determined joint brain-storming
+* What's important is that we both recognize we need to work together to find a solution that satisfies everyone
+
+##### Ask What Standards Should Apply
+
+Generally the best way to manage conflict in a way that safeguards a relationship is to look for standards or fair principles to guide a resolution.
+* If we can't find a creative way to solve the problem, ask what standards of fairness should apply, and why
+* Industry or local practices, legal precedents, and ethical principles all offer ways to settle the matter
+
+###### The Principle of Mutual Caretaking
+
+One dynamic to remember at this stage of a difficult conversation is the tendency we all have to believe that our way of doing things is the "right" way.
+* No relationship will endure if one party always gives in to the other
+  * A good resolution will usually require each party to accommodate somewhat to the other's differences, or perhaps to reciprocate
+
+#### If We Still Can't Agree, Consider the Alternatives
+
+If we are going to walk away without agreeing, we need two things:
+
+1. To explain why we are walking away.  What interests and concerns are not met by the solutions we've been discussing
+2. A willingness to accept the consequences
+
+### It Takes Time
+
+Most difficult conversations are not a single conversation.  They are a series of exchanges and explorations that happen over time.
+* To find ways to repair the relationship
+* To explore whether and how to work together in the future
+
+We should have follow-up conversations to check in and, if necessary, look for new ways to cope.
+
